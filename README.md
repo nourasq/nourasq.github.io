@@ -6,7 +6,7 @@ growth mindset is when the students understand that thier abilities can be devel
 **REMINDERS**
 1. you can do a good job dont give up.
 2.try again and agian then you will sucsse at sure.
-3.you have the talent and experience ..##GO ON
+3.you have the talent and experience ..## GO ON
 
 
 

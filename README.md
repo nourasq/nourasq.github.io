@@ -5,11 +5,11 @@ growth mindset is when the students understand that thier abilities can be devel
 
 **REMINDERS**
 
--you can do a good job dont give up.
+*-you can do a good job dont give up.*
 
--try again and agian then you will sucsse at sure.
+*-try again and agian then you will sucsse at sure.*
 
--you have the talent and experience ..## GO ON
+*-you have the talent and experience ..## GO ON*
 
 [link](https://www.mindsetworks.com/science/)
 

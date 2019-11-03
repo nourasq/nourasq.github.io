@@ -1,8 +1,14 @@
-## Welcome to GitHub Pages
+## Welcome to growth mindset page
+## growth mindset
 
-You can use the [editor on GitHub](https://github.com/nourasq/nourasq.github.io/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+growth mindset is when the students understand that thier abilities can be developed and improved throuqh learning and hard-work.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+**REMINDERS**
+1. you can do a good job dont give up.
+2.try again and agian then you will sucsse at sure.
+3.you have the talent and experience ..##GO ON
+
+
 
 ### Markdown
 

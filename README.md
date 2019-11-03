@@ -16,6 +16,6 @@ growth mindset is when the students understand that thier abilities can be devel
 ![image](https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcTUYTIt2olA9IWPNGquEX5lilRCsicuX-5CStNNyijhbnpUJy69)
 
 
-
+![image2](https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcRrv-xdAl3emALeWrenQessTkVu-nOvHQ2jBX52J6VH9Py6pmeY)
 
 
